@@ -1,4 +1,4 @@
-📫 buddy#5683
+📫 bddy#5683
 
 
 <table width="100%" align="center">
